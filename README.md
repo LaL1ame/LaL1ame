@@ -16,7 +16,7 @@
 
 
 
-![bdb7a7e7d0087bf4af6d51c050eec5a2](D:\md笔记\TyporaImages\bdb7a7e7d0087bf4af6d51c050eec5a2.jpg)
+![bdb7a7e7d0087bf4af6d51c050eec5a2](image/bdb7a7e7d0087bf4af6d51c050eec5a2.jpg)
 
 
 
@@ -69,6 +69,7 @@
 
 
 其他好像没什么了，说来惭愧。
+
 
 
 
