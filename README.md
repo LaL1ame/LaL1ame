@@ -26,7 +26,7 @@
 
 
 
-![be9cee34691f3144358484875a70c92d](D:\md笔记\TyporaImages\be9cee34691f3144358484875a70c92d.jpg)![image-20250904133708378](D:\md笔记\TyporaImages\image-20250904133708378.png)
+![image-20250904133708378](image/be9cee34691f3144358484875a70c92d.jpg)![be9cee34691f3144358484875a70c92d](image/image-20250904133708378.png)
 
 
 
@@ -36,7 +36,7 @@
 
 认识了一些人，偶尔会有小聚餐。
 
-![251667a12d3b3362be85acf574b27be2](D:\md笔记\TyporaImages\251667a12d3b3362be85acf574b27be2.jpg)
+![251667a12d3b3362be85acf574b27be2](image/251667a12d3b3362be85acf574b27be2.jpg)
 
 
 
@@ -60,15 +60,16 @@
 
 偶尔来兴致了叫上三两小友出去吃点好吃的到处逛逛
 
-![252be7c8dd0a684de9c0bd32688615f8](D:\md笔记\TyporaImages\252be7c8dd0a684de9c0bd32688615f8.jpg)
+![252be7c8dd0a684de9c0bd32688615f8](image/252be7c8dd0a684de9c0bd32688615f8.jpg)
 
-![34a3dc553980437b87ea652cc289c540](D:\md笔记\TyporaImages\34a3dc553980437b87ea652cc289c540.jpg)
+![34a3dc553980437b87ea652cc289c540](image/34a3dc553980437b87ea652cc289c540.jpg)
 
-![4449c71d0120c97d79823bbb5b4b4241](D:\md笔记\TyporaImages\4449c71d0120c97d79823bbb5b4b4241.jpg)
+![4449c71d0120c97d79823bbb5b4b4241](image/4449c71d0120c97d79823bbb5b4b4241.jpg)
 
 
 
 其他好像没什么了，说来惭愧。
+
 
 
 
